@@ -1,5 +1,5 @@
 # * ˚ ✦ About Me
-- ,, ✎ ES ꕥ
+- ,, ✎ ES N ꕥ
 - ,, ✎ EO B1 ꕥ
 - ,, ✎ EN B2 ꕥ
 
