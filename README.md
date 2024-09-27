@@ -1,5 +1,8 @@
 # * ˚ ✦ About Me
-- ,, ✎ EN/ES/EO ꕥ
-- ,, ✎ C/C++ ꕥ
+- ,, ✎ ES ꕥ
+- ,, ✎ EO B1 ꕥ
+- ,, ✎ EN B2 ꕥ
+**_________ ׂׂૢ་༘࿐**
+- ,, ✎ C/C++ - JavaScript ꕥ
 - ,, ✎ Argentina ꕥ
-- ,, ✎ Studying ꕥ
+- ,, ✎ Student ꕥ
