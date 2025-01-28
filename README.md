@@ -1,7 +1,7 @@
 # * ˚ ✦ About Me
 - ,, ✎ ES N ꕥ
 - ,, ✎ EO B1 ꕥ
-- ,, ✎ EN B2 ꕥ
+- ,, ✎ EN C1 ꕥ
 
 **_________ ׂׂૢ་༘࿐**
 - ,, ✎ C/C++ - JavaScript ꕥ
