@@ -4,6 +4,6 @@
 - ,, ✎ EN C1 ꕥ
 
 **_________ ׂׂૢ་༘࿐**
-- ,, ✎ C/C++ - JavaScript ꕥ
+- ,, ✎ C/C++ - JavaScript - Python ꕥ
 - ,, ✎ Argentina ꕥ
 - ,, ✎ Student ꕥ
