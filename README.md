@@ -5,6 +5,6 @@
 
 
 **_________ ׂׂૢ་༘࿐**
-- ,, ✎ C/C++ - JavaScript - Python ꕥ
+- ,, ✎ Technical degree in IT ꕥ
 - ,, ✎ Argentina ꕥ
 - ,, ✎ Student ꕥ
